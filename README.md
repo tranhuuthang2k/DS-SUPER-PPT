@@ -16,7 +16,7 @@ https://www.facebook.com/groups/1257721027721714/permalink/1773446906149121/
 
 ✔️Bài 2: Chuyển file word tất cả môn , kể cả toán qua file word ppt chính xác đến 99%, từ word -> powerpoint, powerpoin sang word, hay qua excel nói chung đủ thể loại chuyển
 
-https://www.facebook.com/.../permalink/1426791944147954/
+https://www.facebook.com/groups/1257721027721714/permalink/1426791944147954/
 
 ✔️Bài 3: Cài iminmap 10+ crack sử dụng vĩnh viễn chỉ 4 bước cực dễ https://www.facebook.com/groups/1257721027721714/posts/1428459860647829
 
